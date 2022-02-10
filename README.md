@@ -1,5 +1,4 @@
 # Legit-Aim
 
    
-    |  |
-  \______/
+    | Follow me on Instagram; @Muidreza |
